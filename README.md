@@ -1,1 +1,1 @@
-Transfem gender affirming button(TM). All rights reserved.
+Transfem gender affirming button™. All rights reserved.
